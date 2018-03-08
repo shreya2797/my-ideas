@@ -1,2 +1,4 @@
 # my-ideas
-just random thoughts
+these are important 
+fish breathes through its skin
+tomato is a fruit
